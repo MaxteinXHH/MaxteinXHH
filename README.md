@@ -1,0 +1,12 @@
+- 👋 Hi, I’m @MaxteinXHH
+- 👀 找乐子
+- 🌱 
+- 💞️ I’m looking fun.
+- 📫Communicate with me for maxtein2023@outlook.com
+- 😄 Pronouns: ...
+- ⚡ Fun fact: ...
+
+<!---
+MaxteinXHH/MaxteinXHH is a ✨ special ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+You can click the Preview link to take a look at your changes.
+--->

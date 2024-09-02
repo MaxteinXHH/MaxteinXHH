@@ -1,6 +1,6 @@
 - 👋 Hi, I’m @MaxteinXHH
 - 👀 找乐子
-- 🌱 
+- 热爱祖国🇨🇳
 - 💞️ I’m looking fun.
 - 📫Communicate with me for maxtein2023@outlook.com
 - 😄 Pronouns: ...

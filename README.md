@@ -3,7 +3,9 @@
 - 热爱祖国🇨🇳
 - 💞️ I’m looking fun.
 - 📫Communicate with me for maxtein2023@outlook.com
+Or  1265884578@qq.com
 - 😄 Pronouns: ...
+
 - ⚡ Fun fact: ...
 
 <!---

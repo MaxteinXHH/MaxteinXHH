@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @MaxteinXHH
+- 👋 Hi, I’m @MaxteinXHH.A student，20 years old.
 - 👀 找乐子
 - 热爱祖国🇨🇳
 - 💞️ I'm looking for joy.

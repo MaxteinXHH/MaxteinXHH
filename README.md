@@ -2,7 +2,7 @@
 - 👀 找乐子
 - 热爱祖国🇨🇳
 - 💞️ I enjoy looking for interesting things and creating some fun things.
--  <a href="https://maxteinxhh.github.io/Xis-haohao/ ">😄my website</a>
+-  <a href="http://xis-hao.fun/">😄my website</a>
 
 ##声明  
 
